@@ -1,2 +1,1 @@
-# iprqntt
 Tredenex Vision AI Przegląd 2025 - Co nikt ci nie mówi!
